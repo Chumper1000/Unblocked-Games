@@ -1,3 +1,3 @@
 Website 
 
-www.allegiance357games.tk
+www.allegiancegames.tk
